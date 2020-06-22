@@ -1,3 +1,5 @@
-We work in advisory and hands-on capacities with organisations focused on sustainability. We apply deep expertise in software engineering, product & scaling both technology and teams, working with organisations across a wide range of sectors including clean tech, forestry and water resources. 
+We work in advisory and hands-on capacities with start-ups and investors focused on sustainability, across a wide range of sectors including clean tech, forestry and water resources. 
+
+We help organisations overcome business challenges with technology, by applying deep expertise in software engineering, product & scaling both technology and teams.
 
 Contact us at james@atomitz.com
