@@ -2,4 +2,4 @@ We work in advisory and hands-on capacities with start-ups and investors focused
 
 We help organisations build not just a good product, but the right one.
 
-Contact us at [james@atomitz.com](mailto:james@atomitz.com) or at [https://linkedin.com/in/jamescrowley](https://linkedin.com/in/jamescrowley)
+Contact James at [james@atomitz.com](mailto:james@atomitz.com) or at [https://linkedin.com/in/jamescrowley](https://linkedin.com/in/jamescrowley)
